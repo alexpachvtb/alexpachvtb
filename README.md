@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @alexpachvtb
+- 👀 I’m interested in frontend development
+- 🌱 I’m currently learning on on udemy.com & rs.school
+- 📫 How to reach me:
+-- https://vk.com/id223773105
+-- https://t.me/alexpachvtb
